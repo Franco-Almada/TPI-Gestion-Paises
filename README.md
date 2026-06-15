@@ -42,8 +42,8 @@ Integrantes
 
 ### Video demostrativo
 
-https://drive.google.com/file/d/1uwfB2smeyX8MBn-b_29lvKSRdhulQsSg/view?usp=sharing
+https://drive.google.com/file/d/1x7hSiL9fVXO8yLiwKZMxCS-Pja7Wmsde/view?usp=sharing
 
 ### Documentación PDF
 
-https://drive.google.com/file/d/1fUckbqo5qwWvv33OJAGsQGtKSdUCCq3i/view?usp=sharing
+https://drive.google.com/file/d/1uwfB2smeyX8MBn-b_29lvKSRdhulQsSg/view?usp=sharing
